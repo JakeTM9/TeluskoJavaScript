@@ -1,5 +1,6 @@
 # TeluskoJavaScript
-Youtube javascript course
+
+I follow along an extensive Youtube javascript course
 
 Navigate the branches for content.
 
