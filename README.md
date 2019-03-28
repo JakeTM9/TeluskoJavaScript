@@ -10,4 +10,4 @@ Big fan of Telusko's stuff. I will probably keep taking his courses- probably gi
 
 EDIT 3/20/2019: halfway done- just got back from spring break, will resume tomorrow :)
 
-EDIT 3/28/209: getting busier at woek - slowing down
+EDIT 3/28/209: getting busier at work - slowing down
